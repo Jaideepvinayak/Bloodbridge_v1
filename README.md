@@ -1,3 +1,3 @@
-I LOVE YOU VINIII 
-I LOVE YOU SO MUCH RA 
-i toooooooooooooooooooooooooooooooo lovvvvvvvvvvvvvvvvvvveeeeeeeeeeeeeeeeeeeeeee uuuuuuuuuuuuuu raaaaaaaaaaaaaaaaa buuuuuuuuuuuuuuuuuuujjjjjjjjjjjjjiiiiiiiiiiiiiiii
+VINIIII TWARAGA SETTLE AYIPO 
+NOT TO BRING THAT TOPIC AGAIN BUT 
+CAN'T WAIT TO GET MARRIED WITH YOU RE 
