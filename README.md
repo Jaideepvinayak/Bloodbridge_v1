@@ -1,4 +1,1 @@
-VINIIII TWARAGA SETTLE AYIPO 
-NOT TO BRING THAT TOPIC AGAIN BUT 
-CAN'T WAIT TO GET MARRIED WITH YOU RE 
-gula gulaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+go to bathroom i'll also go no one there kadha intlo i can go to bathroom with phone only thatha there
